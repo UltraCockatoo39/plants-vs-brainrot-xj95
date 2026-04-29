@@ -1,4 +1,4 @@
-
+Experience plants vs brainrots like never before with vip plants vs brainrots Script, the #1 Script. Includes god mode and infinite resources for
 
 
 
